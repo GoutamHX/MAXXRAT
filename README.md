@@ -1,5 +1,6 @@
 <p align="center">
- <img src= "https://github.com/GoutamHX/MAXXRAT/assets/148895787/448fad32-1346-4f55-9072-9737787541ed" style="height:100px;width:100px;" >
+ <img src= "https://github.com/GoutamHX/MAXXRAT/assets/148895787/59d554d8-8766-43f6-b964-40b193523207
+87541ed" style="height:100px;width:100px;" >
 </p>
 <h1 align=center>MAXXRAT</h1>
 
