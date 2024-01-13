@@ -99,7 +99,7 @@
 1. [❤️‍🔥1.TELEGRAM](https://t.me/TheAdvanceBots)
 2. [❤️‍🔥2.TELEGRAM](https://t.me/MAXX_MODS)
 
-## If you face any problem in maxxtart setup then contact the admin
+## If you face any problem in MAXXRAT setup then contact the admin
 - [💕Admin](https://t.me/MR_GOUTAM08)
 
 ## CREDIT ❤️✅
