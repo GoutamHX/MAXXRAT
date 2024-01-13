@@ -96,10 +96,13 @@
   1. To be updated...
 
 ### ❤️JOIN TELEGRAM CHANNELS FOR MORE UPDATES❤️
-1. https://t.me/TheAdvanceBots
-2. https://t.me/MAXX_MODS
+1. [❤️‍🔥1.TELEGRAM](https://t.me/TheAdvanceBots)
+2. [❤️‍🔥2.TELEGRAM](https://t.me/MAXX_MODS)
 
-## CREDIT
+## If you face any problem in maxxtart setup then contact the admin
+- [💕Admin](https://t.me/MR_GOUTAM08)
+
+## CREDIT ❤️✅
  AIRAVAT -RAT
 
 ## DISCLAIMER
