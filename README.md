@@ -93,7 +93,7 @@
  1. Now compile the code with appt2.
  1. Install the app in victim's device and give all the permissions after that the connection will show up in web panel.
   ### Tutorial Videos
-  1. To be updated...
+  1. [✅Tutorial](https://link.vipurl.in/MAXXRAT)
 
 ### ❤️JOIN TELEGRAM CHANNELS FOR MORE UPDATES❤️
 1. [❤️‍🔥1.TELEGRAM](https://t.me/TheAdvanceBots)
